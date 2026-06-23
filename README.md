@@ -10,7 +10,7 @@
 
 -AMO homem-aranha-🕸️
 
--Meu melhor amigo é o ArtuhurV.
+-Meu melhor amigo é o ArthurV.
 
 
 
