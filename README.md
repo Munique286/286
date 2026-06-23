@@ -4,9 +4,9 @@
 
 -AMO doces
 
--gosto de Harry Potter-⚡
+-Gosto de Harry Potter-⚡
 
--sou estudante-📘
+-Sou estudante-📘
 
 -AMO homem-aranha-🕸️
 
