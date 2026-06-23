@@ -2,8 +2,8 @@
 
 Gosto de dormir
 AMO doces
-Gosto de Harry Potter 
-Sou estudante
+gosto de Harry Potter 
+sou estudante
 AMO homem-aranha
 
 
