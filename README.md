@@ -10,8 +10,6 @@
 
 -AMO homem-aranha-🕸️
 
--Meu amigo é o ArthurV.
-
 -Rock-🖤
 
 
